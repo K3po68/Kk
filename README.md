@@ -1,0 +1,3 @@
+# LOREZ
+Haha
+Jangan abuse
